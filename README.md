@@ -4,7 +4,7 @@ Credit Manager | Structured Credit | Real Estate | Investment Management
 
 Economist and investment professional with experience in structured credit, real estate finance, investment analysis, portfolio management, and credit monitoring.
 
-Currently working as a Credit Manager at TG Core Asset, with responsibilities spanning the full credit investment lifecycle — from underwriting and structuring to portfolio monitoring, restructuring, recovery strategies, and liquidity management.
+Currently working as a Credit Manager, with responsibilities spanning the full credit investment lifecycle — from underwriting and structuring to portfolio monitoring, restructuring, recovery strategies, and liquidity management.
 
 Professional Focus
 
